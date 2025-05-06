@@ -1,8 +1,8 @@
-# 👩🏻‍💻 Fabiana Santos
+# 👩🏻‍💻 WEB DESIGNER
 
 **`Web Designer UI/UX Front End`**
 
-"[Fabiana](https://www.youtube.com/@creativecode_webdesiner)",Je m'appelle Santos Fabiana. Actuellement à la recherche de nouvelles qualifications professionnelles. "[creative code](https://www.instagram.com/webdesigner.hub/)".
+"[Fabiana](https://www.youtube.com/@creativecode_webdesiner)",Je m'appelle Santos Fabiana.Tout comme vous, vous avez déjà été à ma place à la recherche de votre première opportunité. Je suis a recherche d'une entreprise où je peux apporter mes compétences. J'espère trouver une entreprise avec laquelle je pourrai continuer à évoluer et à grandir. J'attends avec impatience l'opportunité de décrocher mon premier emploi en tant que Web Designer. "[creative code](https://www.instagram.com/webdesigner.hub/)".
 
 <p align="left">
     <a href="https://www.youtube.com/@creativecode_webdesiner">
