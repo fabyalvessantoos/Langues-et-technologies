@@ -1,4 +1,4 @@
-# 👩🏻‍💻 WEB DESIGNER
+# WEB DESIGNER
 
 **`Web Designer UI/UX Front End`**
 
